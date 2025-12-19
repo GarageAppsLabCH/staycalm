@@ -19,3 +19,11 @@ Email: garageappslab@gmail.com
 ---
 
 StayCalm does not collect, store, or share any personal data.
+
+#Social
+
+**YouTube**
+https://youtube.com/shorts/b-pEsOXx-Zw?feature=share
+
+**Tiktok**
+https://www.tiktok.com/@garageappslab/video/7585704714944122134?is_from_webapp=1&sender_device=pc
